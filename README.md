@@ -4,4 +4,4 @@
 
 喜欢开发Minecraft数据包，啥都爱折腾点。
 
-Email: huanlan233@qq.com
+Email: huanlan233@outlook.com
